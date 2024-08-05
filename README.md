@@ -2,6 +2,6 @@
 "isama blessing"
 "benue state"
 "ohimini LGA"
-"drusilla nurser and primary school"
+"drusilla nursery and primary school"
 "holy rosary college"
 
